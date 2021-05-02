@@ -47,3 +47,4 @@ esse compactador precisa como matéria prima um elemento chamado fragmento
 <hr>
 
 **entre em contato para dar sugestão do que o mod pode melhorar ou o que eu posso adicionar no mod,mande seu mapa tambem para que seu nome apareça no mod vlw desde ja ;)**
+>contato:ruby.ore.mod@gmail.com
